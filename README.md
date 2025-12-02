@@ -1,4 +1,4 @@
-# [fanliche.github.io](https://fanliche.github.io/)
+# [fanliche.github.io](https://ailinna.gitbook.io/ailinna-docs/)
 
 # 91网官方入口 - 真实还原版: https://www.91xwang.my
 
